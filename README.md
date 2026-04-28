@@ -1,6 +1,7 @@
 ## Hi there 👋
 ## クルマップ 
-https://car-kaitori.jp/
+https://xs477014.xsrv.jp/
+
 
 クルマップ ｜車・バイク・トラック・廃車買取の比較メディア
 
